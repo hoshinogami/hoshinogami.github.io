@@ -1,0 +1,1 @@
+# hoshinogami.github.io
